@@ -1,2 +1,0 @@
-# DARKANS
-Darkans Photography
